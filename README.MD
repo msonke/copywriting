@@ -7,7 +7,7 @@
 
 ***
 
-### Day 1: 10/22/22 (Saturday)
+### Day -: --/--/-- (-----)
 [X] ( -- / 30 ) Typing Practice
 Article :
 Time In :
